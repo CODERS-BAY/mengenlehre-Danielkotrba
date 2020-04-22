@@ -1,0 +1,1 @@
+![Aufgabe1](img/Aufgabe4.jpg)
